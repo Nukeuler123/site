@@ -18,6 +18,10 @@ Im also a big privacy advocate, I hate when big corps try to strip away our priv
 
 The opposite of yours.
 
+# Contacts
+Email: nucleartorrent@tutanota.com
+
+
 # Sona?
 For the normies/non-furries this is where you should scroll away, it aint NSFW but I know some people will cringe if they see any furry art and I can respect that. 
 
