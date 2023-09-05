@@ -9,9 +9,9 @@ The name's Winter, though that's my online name, dont plan to give out my real n
 
 Im a furry, though I usually keep this to myself in real life as I see it as kind of cringe to wear a fursuit or saw "UwU" in public, I keep it professional y'know?
 
-# Intrests?
+# Interests?
 
-Well I clearly like programming and am a furry so uhh... machine learning I guess? I like to mess around with AI models and even build/train my own. I have many projects on my computer an on github showing what I can do.
+Well I clearly like programming and am a furry so uhh... machine learning I guess? I like to mess around with AI models and even build/train my own. I have many projects on my computer and on github showing what I can do.
 Im also a big privacy advocate, I hate when big corps try to strip away our privacy for profit. 
 
 # Political stances?
